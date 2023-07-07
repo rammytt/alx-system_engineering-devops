@@ -1,1 +1,0 @@
-Sule Bala
